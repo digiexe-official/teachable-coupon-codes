@@ -8,7 +8,9 @@ Hey there, course creator! If you’re dreaming of sharing your knowledge throug
 
 Finding legit coupon codes can feel like a treasure hunt, but I’ve got your map. Here are the best spots to check:
 
+<p align="center">
 <img align="center" width="542" alt="image" src="https://github.com/user-attachments/assets/4b66aa8a-4f12-43b1-bcd7-77f48aa524bf" />
+</p>
 
 
 ### **Teachable’s Official Website**
