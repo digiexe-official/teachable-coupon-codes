@@ -118,7 +118,7 @@ Teachable sprinkles them throughout the year, especially during holidays like **
 
 **Quick Links**
 - [Teachable Review](https://sites.google.com/view/teachable-review-detailed/home)
--[ Kartra Review](https://sites.google.com/view/kartra-review/)
+- [ Kartra Review](https://sites.google.com/view/kartra-review/)
 - [Thinkific Review](https://sites.google.com/view/thinkific-review/)
 
 ## Wrap Up: Save Smart with Teachable Coupon Codes
